@@ -1,2 +1,2 @@
-i can kepp my streak even when i write some thing small since 
+i can kepp my streak even when i write some thing small 
 
