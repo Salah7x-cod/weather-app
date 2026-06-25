@@ -1,1 +1,1 @@
-i can kepp my streak even when   
+i can kepp my streak even  
