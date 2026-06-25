@@ -1,1 +1,1 @@
-i can kepp my streak even when i write some  
+i can kepp my streak even when i write   
